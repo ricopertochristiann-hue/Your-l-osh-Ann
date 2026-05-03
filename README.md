@@ -1,0 +1,2 @@
+"Speak Up! A Chinese Parent's Complete Guide to Teaching Kids English at Home"
+The guide includes a branded red & gold cover, table of contents, and 5 full modules covering how kids learn language, setting up a home English environment, age-by-age activity guides (3–5, 6–8, 9–10), handling resistance and hard moments, and progress tracking. The bonus section has 50 parent phrases with Chinese translations and a curated resource list.
